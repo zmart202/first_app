@@ -1,1 +1,1 @@
-Kolade knows things
+ruby on the fucking rails
