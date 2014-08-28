@@ -1,1 +1,1 @@
-ruby on the fucking rails
+kid spills like a nub
